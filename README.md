@@ -1,10 +1,11 @@
-# Beis Moshe Times
+# Beis Moshe
+## Davening Times
 
 Postings for times of the Beis Moshe shul on Kaf Hachaim street, Beitar Illit
 
 Date: Fri, Dec 24, 2021 at 12:57 PM
-‪
-Subject: מנחה גדולה בשבתות החורף‬
+
+Subject: מנחה גדולה בשבתות החורף
 
 ציבור המתפללים היקר!
 
