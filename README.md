@@ -1,4 +1,4 @@
-# beismoshetimes.github.io
+# Beis Moshe Times
 
 Postings for times of the Beis Moshe shul on Kaf Hachaim street, Beitar Illit
 
